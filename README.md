@@ -29,3 +29,5 @@ https://github.com/moises-ventura/CLASE2604
 https://github.com/JosephWilliams26
 
 https://github.com/WSPLGGE/CelN_CC
+
+<a href="https://ralgfoforo.github.io/computodos/computoinv.html" target="_blank">Lázaro </a>
